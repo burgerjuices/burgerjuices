@@ -8,4 +8,4 @@ i'm also very into music, i send playlists freely so if you want my spotify just
 
 some other videogames & medias im into: monster prom, deadlock, overwatch, mlp, sth, cyberpunk 2077, utdr, homestuck & persona
 
-c+h and interact freely! i love talking to people and making new friends!
+say hi!!!!!!!!!!!!!!!!!!! i love talking to new peopel!!!!!!!!!!!!!!!!!
