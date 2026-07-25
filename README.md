@@ -1,6 +1,6 @@
 hellooooo!! my name is ari!!
 
-i am 18 years old & transfem (APPOINTMENT FOR ESTROGEN JULY 20TH!!!!!!!)
+i am 19 years old & transfem
 
 i am very into competitive pokemon and pokemon challenges! ask me what run im doing if you're interested!
 
